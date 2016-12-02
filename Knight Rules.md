@@ -71,10 +71,10 @@
 1. **Temperance** 
 
 2. **Courage
-**  
+**   
 3. **Love**
   
 4. **Loyalty
 **  
 5. **Courtesy
-**
+**  
