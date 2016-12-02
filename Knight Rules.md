@@ -71,8 +71,11 @@
 
 1. __Temperance__  
 
+
 2. __Courage__  
+
 3. __Love__  
+
 4. __Loyalty__  
-5. __Courtesy_
-_ 
+
+5. __Courtesy__ 
