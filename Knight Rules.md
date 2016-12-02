@@ -5,7 +5,7 @@
 
   “Often we imagine that we will work hard until we arrive at some distant goal, and then we will be happy. This is a delusion. Happiness is the result of a life lived with purpose. Happiness is not an objective. It is the movement of life itself, a process, and an activity. It arises from curiosity and discovery. Seek pleasure and you will quickly discover the shortest path to suffering.” 
 
-1. Solitude - Create time alone with yourself. When seeking the wisdom and clarity of your own mind, silence is a helpful tool. The voice of our spirit is gentle and cannot be heard when it has to compete with others. Just as it is impossible to see your reflection in troubled water, so too is it with the soul. In silence, we can sense eternity sleeping inside us.    
+1. **Solitude - Create time alone with yourself. When seeking the wisdom and clarity of your own mind, silence is a helpful tool. The voice of our spirit is gentle and cannot be heard when it has to compete with others. Just as it is impossible to see your reflection in troubled water, so too is it with the soul. In silence, we can sense eternity sleeping inside us.    
 
 2. Humility - Never announce that you are a knight, simply behave as one. You are better than no one, and no one is better than you.   
 
