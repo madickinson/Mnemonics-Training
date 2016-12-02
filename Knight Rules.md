@@ -69,13 +69,10 @@
 #5 Main Virtues of the Medievel Knight
   
 
-1. **Temperance**  
+1. _Temperance_  
 
-2. **Courage
-**  
-3. **Love**
-  
-4. **Loyalty
-**  
-5. **Courtesy
-**  
+2. _Courage_  
+3. _Love_  
+4. _Loyalty_  
+5. _Courtesy
+_ 
