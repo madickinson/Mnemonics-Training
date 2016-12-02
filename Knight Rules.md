@@ -40,20 +40,28 @@
 12. **Justice** 
 > There is only one thing for which a knight has no patience: injustice. Every true knight fights for human dignity at all times.    
 
-13. **Generosity** - You were born owning nothing and with nothing you will pass out of this life. Be frugal and you can be generous.   
+13. **Generosity** 
+> You were born owning nothing and with nothing you will pass out of this life. Be frugal and you can be generous.   
 
-14. **Discipline** - In the field of battle, as in all things, you will perform as you practice. With practice, you build the road to accomplish your goals. Excellence lives in attention to detail. Give your all, all the time. Don’t save anything for the walk home.The better a knight prepares, the less willing he will be to surrender. 
+14. **Discipline** 
+> In the field of battle, as in all things, you will perform as you practice. With practice, you build the road to accomplish your goals. Excellence lives in attention to detail. Give your all, all the time. Don’t save anything for the walk home.The better a knight prepares, the less willing he will be to surrender. 
 
-15. **Dedication** - Ordinary effort, ordinary result. Take steps each day to better follow these rules. Luck is the residue of design. Be steadfast. The anvil outlasts the hammer.
+15. **Dedication** 
+> Ordinary effort, ordinary result. Take steps each day to better follow these rules. Luck is the residue of design. Be steadfast. The anvil outlasts the hammer.
 
-16. **Speech** - Do not speak ill of others. A knight does not spread news that he does not know to be certain, or condemn things that he does not understand.   
-17. **Faith** - Sometimes to understand more, you need to know less.   
+16. **Speech** 
+> Do not speak ill of others. A knight does not spread news that he does not know to be certain, or condemn things that he does not understand.   
+17. **Faith** 
+> Sometimes to understand more, you need to know less.   
 
-18. **Equality** - Every knight holds human equality as an unwavering truth. A knight is never present when men or women are being degraded or compromised in any way, because if a knight were present, those committing the hurtful acts or words would be made to stop.  
+18. **Equality** 
+> Every knight holds human equality as an unwavering truth. A knight is never present when men or women are being degraded or compromised in any way, because if a knight were present, those committing the hurtful acts or words would be made to stop.  
 
-19. **Love** - Love is the end goal. It is the music of our lives. There is no obstacle that enough love cannot move.  
+19. **Love** 
+> Love is the end goal. It is the music of our lives. There is no obstacle that enough love cannot move.  
 
-20. **Death** - Life is a long series of farewells; only the circumstances should surprise us. A knight concerns himself with gratitude for the life he has been given. He does not fear death, for the work one knight begins, others may finish. 
+20. **Death** 
+> Life is a long series of farewells; only the circumstances should surprise us. A knight concerns himself with gratitude for the life he has been given. He does not fear death, for the work one knight begins, others may finish. 
 
 
 
