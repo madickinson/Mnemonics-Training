@@ -32,7 +32,8 @@
 9. **Courage** 
 > Anything that gives light must endure burning. 
 
-10. **Grace** - Grace is the ability to accept change. Be open and supple; the brittle break. 
+10. **Grace** 
+> Grace is the ability to accept change. Be open and supple; the brittle break. 
 
 11. **Patience** 
 > There is no such thing as a once-in-a-lifetime opportunity. A hurried mind is an addled mind; it cannot see clearly or hear precisely; it sees what it wants to see, or hears what it is afraid to hear, and misses much. A knight makes time his ally. There is a moment for action, and with a clear mind that moment is obvious.  
