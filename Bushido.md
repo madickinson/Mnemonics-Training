@@ -1,0 +1,1 @@
+#Eight virtues of Bushido (as envisioned by Nitobe Inazo)
