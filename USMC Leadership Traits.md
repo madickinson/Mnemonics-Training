@@ -1,4 +1,4 @@
-#USMC Leadership Traits
+#USMC Leadership Traits  
 
 1. Dependability  
 2. Bearing  
