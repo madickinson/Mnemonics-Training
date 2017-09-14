@@ -1,4 +1,4 @@
-#The Shakertown Pledge
+## The Shakertown Pledge
 
 Recognizing that Earth and the fullness thereof is a gift from our gracious God, and that we are called to cherish, nurture, and provide loving stewardship for Earth's resources, and recognizing that life itself is a gift, and a call to responsibility, joy, and celebration, I make the following declarations:
 
